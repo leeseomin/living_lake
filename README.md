@@ -11,7 +11,7 @@
 
 On youtube : https://youtu.be/mVv8pLdgv8Q
 
-shorts version : 
+shorts version : https://youtube.com/shorts/YS4bfzWUoBE 
    <br/>  
    
 ### Each work is stored in the ART folder.  
